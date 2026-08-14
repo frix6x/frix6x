@@ -1,4 +1,4 @@
-## Hello ! 👋
+## hi 👋
 
 i'm frix ! i'm 19 years old.
 
