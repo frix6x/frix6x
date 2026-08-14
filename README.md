@@ -1,6 +1,4 @@
 ## Hello ! 👋
 
-i'm frix !
-19 , transfemale !, lesbian !
-
-taken !!! (@soapgaz)
+i'm frix ! i'm 19 years old.
+transfemale, lesbian.
