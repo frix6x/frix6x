@@ -12,6 +12,8 @@ i love my girlfriend so much with all my heart . i love her interests , i love w
 
 i love you so much , callie . 🤍
 
+
+
 dni if you're : 
 
 transphobic , homophobic , xenophobic , sexist , ableist , endogenic / willowgenic , ( don't even think of talking to me if i will found out that . my partners ARE medically recognized system , i WON'T stand you pretending you're one . ) , proshippers , darkshippers , being a fan of Mouthwashing / Hazbin Hotel & Helluva Boss ( if we are already friends -- it's fine ! ) / Boyfriend to Death / Sally Face . 
