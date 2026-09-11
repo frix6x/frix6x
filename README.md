@@ -6,7 +6,7 @@ transfemale , lesbian .
 
 amazing , incredible and so much lovely art by my dearest wife ! ( @soapgaz )
 
-<img width="750" height="750" alt="i love you so much ." src="https://github.com/user-attachments/assets/f791e10a-0807-430c-a2b2-02beb021e76f" />
+<img width="850" height="850" alt="i love you so much ." src="https://github.com/user-attachments/assets/f791e10a-0807-430c-a2b2-02beb021e76f" />
 
 i love my girlfriend so much with all my heart . i love her interests , i love watching movies / shows / anything and everything with her . i love listening for her yapping about things she likes and loves with literally sparkles in her eyes . 💙
 
