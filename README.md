@@ -1,5 +1,7 @@
 <div align="center"> ! hai 👋 !
 
+[@stevengrants](https://github.com/stevengrants) is twix's entitled incredibly talanted , gorgeous and loving wife .
+
 i'm frix !  i'm 19 years old .  taken !  i love my lovely partners so dearly !  💙
 
 transfemale ,  lesbian .
