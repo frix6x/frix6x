@@ -1,4 +1,4 @@
-## hi 👋
+<div align="center"> ## hi 👋
 
 i'm frix ! i'm 19 years old . taken ! i love my lovely partners so dearly ! 💙
 
