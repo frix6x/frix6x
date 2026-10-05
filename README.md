@@ -1,4 +1,4 @@
-<div align="center"> hai 👋
+<div align="center"> ! hai 👋 !
 
 i'm frix ! i'm 19 years old . taken ! i love my lovely partners so dearly ! 💙
 
