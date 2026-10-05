@@ -1,4 +1,4 @@
-<div align="center"> ! hai 👋 !
+<div align="center">
 
 [@stevengrants](https://github.com/stevengrants) is twix's entitled incredibly talanted , gorgeous and loving wife .
 
