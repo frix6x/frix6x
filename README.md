@@ -8,7 +8,7 @@ transfemale ,  lesbian .
 
 ---
 
-amazing ,  incredible and so much lovely art by my dearest wife !  ( @soapgaz )
+amazing ,  incredible and so much lovely art by my dearest wife !  ( @stevengrants )
 
 <img width="2000" height="2000" alt="i love you so much ." src="https://github.com/user-attachments/assets/f791e10a-0807-430c-a2b2-02beb021e76f" />
 
