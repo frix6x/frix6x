@@ -1,6 +1,6 @@
 <div align="center">
 
-[@stevengrants](https://github.com/stevengrants) is twix's entitled incredibly talanted , gorgeous and loving wife .
+[@soapgaz](https://github.com/soapgaz) is twix's entitled incredibly talanted , gorgeous and loving wife .
 
 i'm frix !  i'm 19 years old .  taken !  i love my lovely partners so dearly !  💙
 
@@ -8,7 +8,7 @@ transfemale ,  lesbian .
 
 ---
 
-amazing ,  incredible and so much lovely art by my dearest wife !  ( @stevengrants )
+amazing ,  incredible and so much lovely art by my dearest wife !  ( @soapgaz )
 
 <img width="2000" height="2000" alt="i love you so much ." src="https://github.com/user-attachments/assets/f791e10a-0807-430c-a2b2-02beb021e76f" />
 
